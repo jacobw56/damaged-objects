@@ -22,4 +22,6 @@ My father bought me exactly one gift when I was a child. I don't mean to say tha
 
 As I say, my father bought me only one gift. All other gifts, and frankly everything else, was chosen, purchased, and given by the women in my life. My grandmother, in particular, was not only a great giver, but was intensely competative with my mother. I belive it was her greatest pleasure to outshine her in my eyes. Ironically, they never gave any indication of disliking each other. Not only were they perfecty civil in each others' company, but they regularly seemed to consult each other on the most intimate matters. Still I cannot help but think that my grandmother was the reason my parents were apart for so long. As evidence, they remarried within two months of her death. She could hardly have been cold at that point. Of course this isn't true, but the truth behind the idiom is wonderfully unsavory.
 
+My father bought me a 
+
 By the way, I should mention the miracle of my birth. I have, like all people besides Christ, two natural parents, although it was not apparent to me that they had ever had 
